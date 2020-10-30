@@ -1,2 +1,2 @@
 # Spambot.MK2
-Thank you for downloading my spambot
+Download Whatever You Want
